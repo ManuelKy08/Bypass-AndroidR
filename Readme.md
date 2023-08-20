@@ -1,4 +1,4 @@
-# <a style="font-family:cursive">Buat Bypass Account mui atau mi (xiaomi, samsung, LG,Qualcomm Snapdragon) mantep nih tools gueuis</a>
+# <a style="font-family:cursive">Buat Bypass Account MiUi atau mi (xiaomi, samsung, LG,Qualcomm Snapdragon) mantep nih tools gueuis</a>
 <p align="justify">DISCLAIMER EDUCATIONAL PURPOSES ONLY!? Sebenarnya di internet bnyak sihh ngan arahan hungkull bisi lierr mereunn 
 
 ## LINK ALL DOWnl0adS 🚀
