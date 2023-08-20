@@ -5,7 +5,7 @@
 ## LINK ALL DOWnl0adS 🚀
 **  https://samfw.com **
 
-copy=paste link samfw dah beres entah tiap bulan update terus tools pantengin aja web resminya ntaps sih rahasia sih bagi yang males nyoba dari pada ke konter hp root/bootlop/custom rom habis under 300k wkwk tapi tiap hp/android punya pengaturan beda2 sama kek pc/komputer bootingnya
+copy=paste link samfw dah beres entah tiap bulan update terus tools pantengin aja web resminya mana tau ada tambahan tools ntaps sih rahasia ga? dari pada ke konter hp root/bootlop/custom rom habis under 300k tapi tiap hp/android punya pengaturan beda2 sama kek pc/komputer bootingnya
 
 
 
